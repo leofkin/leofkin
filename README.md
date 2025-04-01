@@ -1,5 +1,5 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=09C82A&random=false&width=435&lines=Hello!!+My+name+is+Leof+%CB%8E%CB%8A%CB%97;I'm+21+years+old+.%E1%90%9F;I'm+from+Brazil+%E0%B4%A6%E0%B5%8D%E0%B4%A6%E0%B4%BF(%CB%B5+%E2%80%A2%CC%80+%E1%B4%97+-+%CB%B5+)+%E2%9C%A7)](https://git.io/typing-svg)
-  <img height=250 width=250img align="right" alt="leof" src="https://cdn.discordapp.com/attachments/1209941461643165739/1225925103695433738/tenor_3.gif?ex=6622e6b9&is=661071b9&hm=5fae537911234f928770c0f05b3cc2065d15d18eb3b49628e99d4ecfcaf28ee7&">
+  <img height=290 width=390img align="right" alt="leof" src="https://media.discordapp.net/attachments/743107028628668419/1356598103204954132/6cb1dda21ad21d8154390c65b730ef15.jpg?ex=67ed25f0&is=67ebd470&hm=629a862cb300b8d62d1d5404b1e8e3382ac15c3940bda427a44ffbbf6c26d607&=&format=webp&width=589&height=446">
 
 
 <div>
