@@ -1,7 +1,5 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=09C82A&random=false&width=435&lines=Hello!!+My+name+is+Leof+%CB%8E%CB%8A%CB%97;I'm+21+years+old+.%E1%90%9F;I'm+from+Brazil+%E0%B4%A6%E0%B5%8D%E0%B4%A6%E0%B4%BF(%CB%B5+%E2%80%A2%CC%80+%E1%B4%97+-+%CB%B5+)+%E2%9C%A7)](https://git.io/typing-svg)
-<div>
   <img height=350 width=280img align="right" alt="leof" src="https://i.imgur.com/9Q8P1r5.gif?ex=67ed25f0&is=67ebd470&hm=629a862cb300b8d62d1d5404b1e8e3382ac15c3940bda427a44ffbbf6c26d607&=&format=webp&width=389&height=346">
-</div>
 
 <div>
   
